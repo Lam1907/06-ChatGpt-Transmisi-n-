@@ -1,0 +1,1 @@
+# 06-ChatGpt-Transmisi-n-
